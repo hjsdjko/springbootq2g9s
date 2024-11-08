@@ -16,9 +16,9 @@
 [![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=hjsdjko&show_icons=true&theme=tokyonight)](http://jsxs1.cn)
 </div>
 
-点击此网址在线查看本项目视频：▶️▶️▶️ [http://www.jsxs1.cn](http://www.jsxs1.cn) ◀️◀️◀️
-
 **【爱毕设总项目数2855套、2024年新款项目850套】**
+
+点击此网址在线查看本项目视频：▶️▶️▶️ [http://www.jsxs1.cn](http://www.jsxs1.cn) ◀️◀️◀️
 
 **完整源码联系 人工客服24小时** 全天在线 **【QQ 979748385 】** 回复 **项目编号+项目名称** 即可获取！！！
 
